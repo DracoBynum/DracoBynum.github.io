@@ -2,7 +2,7 @@
 
 draco.bynum@gmail.com
 
-https://www.dracobynum.com
+https://dracobynum.github.io/index.html
 
 http://www.linkedin.com/in/DracoBynum
 
