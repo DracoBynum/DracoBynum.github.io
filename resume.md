@@ -1,6 +1,6 @@
 # Draco Bynum
 
-> IF you know the enemy and know yourself, you need not fear the results of a hundred battles.
+> If you know the enemy and know yourself, you need not fear the results of a hundred battles.
 
 draco.bynum@gmail.com
 
